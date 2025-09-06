@@ -1,1 +1,1 @@
-# Ethical-Supply-Chains-in-the-Electronics-Industry
+# Ethical Supply Chains in the Electronics Industry
